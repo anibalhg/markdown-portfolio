@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* Nintendo Switch
+* Gamer PC
+* My Own House
